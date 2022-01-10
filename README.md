@@ -1,0 +1,1 @@
+# Tasiyicili-Genlik-Modulasyonu-AM-
